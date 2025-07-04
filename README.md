@@ -9,6 +9,6 @@
 <p align="center">
 <sub>I am often seen located by the Pathway that leads to the bakery or sometimes inside of the bakery
 <p align="center">
-<sub>..usually carrying around bread or croissant..
+<sub>..usually carrying around bread..
 <p align="center">
 <sub> Feel free to whisper me as I am most likely off tab or in the menu..
