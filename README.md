@@ -5,7 +5,7 @@
 # *"WOULD YOU LIKE TO PLAY A GAME WITH ME?"*
 
 <p align="center">
-<sub>You can me The Recruiter or TheSalesMan, either works, I do not mind. 
+<sub>You can me The Recruiter or TheSalesman, either works, I do not mind. 
 <p align="center">
 <sub>I am often seen located by the Pathway that leads to the bakery or sometimes inside of the bakery
 <p align="center">
